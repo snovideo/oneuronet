@@ -1,2 +1,2 @@
-# oneuronet
+# o'NeuroNet
 Рабочие материалы o'NeuroNet - сети, способной грезить.
