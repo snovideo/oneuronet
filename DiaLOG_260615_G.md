@@ -1,4 +1,7 @@
+# Инструкция как триггер сновидения
+
 Лог Гугл 260615
+
 https://github.com/t9104263723-dotcom/-/blob/f65b3c93f99b420be55a2b75b4f45f8887415842/sv/260611sv3.md
 https://github.com/t9104263723-dotcom/-/blob/182fba4f631187961fb14827e02be03983a21c6c/sv/260612sv0.md
 https://github.com/t9104263723-dotcom/-/blob/1eaf090e5ea53e8c459056e75579817c71212c95/sv/260614sv5y.md
