@@ -23,3 +23,13 @@ https://orcid.org/0009-0000-0407-4478
 17.	Скопинцев А.Г. Сакральный камень сновидений (библейские подтексты сквозь призму символики снов). Саарбрюккен (Германия): LAP LAMBERT Academic Publishing, 2016 – 66 с.
 18.	Скопинцев А.Г. Сновидения в духовном поиске - научном, творческом, религиозном. М.: Де'Либри, 2021. - 142 с. URL: https://disk.yandex.ru/i/2-kZnsuQDY48Qw
 19. Скопинцев А.Г. Большой джихад Михаэля Лайтмана, Царя иудейского. Научный лидер, вып.№12 (265), март 2026. URL: https://scilead.ru/article/11455-bolshoj-dzhikhad-mikhaelya-lajtmana-tsarya-i
+20. Цимцум мира Эйн Соф как токен реалити шоу снов. Часть 1. Свет Нефеш. URL: https://cyberleninka.ru/article/n/tsimtsum-mira-eyn-sof-kak-token-realiti-shou-snov-chast-1-svet-nefesh
+21. 
+
+
+
+
+
+
+
+
