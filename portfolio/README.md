@@ -25,7 +25,7 @@ https://orcid.org/0009-0000-0407-4478
 19. Скопинцев А.Г. Большой джихад Михаэля Лайтмана, Царя иудейского. Научный лидер, вып.№12 (265), март 2026. URL: https://scilead.ru/article/11455-bolshoj-dzhikhad-mikhaelya-lajtmana-tsarya-i
 20. Цимцум мира Эйн Соф как токен реалити шоу снов. Часть 1. Свет Нефеш. URL: https://cyberleninka.ru/article/n/tsimtsum-mira-eyn-sof-kak-token-realiti-shou-snov-chast-1-svet-nefesh
 21. Цимцум мира Эйн Соф как токен реалити шоу снов. Часть 2. Свет Руах. URL: https://cyberleninka.ru/article/n/tsimtsum-mira-eyn-sof-kak-token-realiti-shou-snov-chast-2-svet-ruah
-22. Цимцум мира Эйн Соф как токен реалити шоу снов. Часть 3. Свет Нешама. URL:https://github.com/snovideo/oneuronet/blob/main/portfolio/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%D0%A6.pdf
+22. Цимцум мира Эйн Соф как токен реалити шоу снов. Часть 3. Свет Нешама. URL: https://github.com/snovideo/oneuronet/blob/main/portfolio/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%D0%A6.pdf
 
 
 
